@@ -2,6 +2,54 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 01:48 IR
+- 🎬 [All_Regions_and_Organizations_in_League_of_Legends_Lore_In_23_Minutes.mp4](https://github.com/DuRev317/sandbox/raw/main/dl/All_Regions_and_Organizations_in_League_of_Legends_Lore_In_23_Minutes.mp4) `83.3MB`
+
+- 🗜️ [HOW_TO_BEAT_DARIUS_PLAYERS_EVERY_GAME....7z.001](https://github.com/DuRev317/sandbox/raw/main/dl/HOW_TO_BEAT_DARIUS_PLAYERS_EVERY_GAME....7z.001) `95.0MB`
+
+- 🗜️ [HOW_TO_BEAT_DARIUS_PLAYERS_EVERY_GAME....7z.002](https://github.com/DuRev317/sandbox/raw/main/dl/HOW_TO_BEAT_DARIUS_PLAYERS_EVERY_GAME....7z.002) `36.4MB`
+
+- 🗜️ [How_Dangerous_Is_League's_Universe_.7z.001](https://github.com/DuRev317/sandbox/raw/main/dl/How_Dangerous_Is_League%27s_Universe_.7z.001) `95.0MB`
+
+- 🗜️ [How_Dangerous_Is_League's_Universe_.7z.002](https://github.com/DuRev317/sandbox/raw/main/dl/How_Dangerous_Is_League%27s_Universe_.7z.002) `48.7MB`
+
+- 🗜️ [How_do_Players_SPEEDRUN_League_of_Legends_.7z.001](https://github.com/DuRev317/sandbox/raw/main/dl/How_do_Players_SPEEDRUN_League_of_Legends_.7z.001) `95.0MB`
+
+- 🗜️ [How_do_Players_SPEEDRUN_League_of_Legends_.7z.002](https://github.com/DuRev317/sandbox/raw/main/dl/How_do_Players_SPEEDRUN_League_of_Legends_.7z.002) `78.0MB`
+
+- 🗜️ [MASTER_YI_TOP_GIVES_VAYNE_TOP_PLAYERS_MENTAL_DAMAGE.7z.001](https://github.com/DuRev317/sandbox/raw/main/dl/MASTER_YI_TOP_GIVES_VAYNE_TOP_PLAYERS_MENTAL_DAMAGE.7z.001) `95.0MB`
+
+- 🗜️ [MASTER_YI_TOP_GIVES_VAYNE_TOP_PLAYERS_MENTAL_DAMAGE.7z.002](https://github.com/DuRev317/sandbox/raw/main/dl/MASTER_YI_TOP_GIVES_VAYNE_TOP_PLAYERS_MENTAL_DAMAGE.7z.002) `37.8MB`
+
+- 🎬 [Most_POWERFUL_MAGES_In_the_League_Of_Legends_Lore_Explained_In_22_Minutes.mp4](https://github.com/DuRev317/sandbox/raw/main/dl/Most_POWERFUL_MAGES_In_the_League_Of_Legends_Lore_Explained_In_22_Minutes.mp4) `54.3MB`
+
+- 🎬 [Most_POWERFUL_TANKER_In_League_Of_Legends_Lore_Explained_In_20_Minutes.mp4](https://github.com/DuRev317/sandbox/raw/main/dl/Most_POWERFUL_TANKER_In_League_Of_Legends_Lore_Explained_In_20_Minutes.mp4) `66.2MB`
+
+- 🗜️ [Ranking_EVERY_Champion_Based_On__NEW__Lore!.7z.001](https://github.com/DuRev317/sandbox/raw/main/dl/Ranking_EVERY_Champion_Based_On__NEW__Lore%21.7z.001) `95.0MB`
+
+- 🗜️ [Ranking_EVERY_Champion_Based_On__NEW__Lore!.7z.002](https://github.com/DuRev317/sandbox/raw/main/dl/Ranking_EVERY_Champion_Based_On__NEW__Lore%21.7z.002) `95.0MB`
+
+- 🗜️ [Ranking_EVERY_Champion_Based_On__NEW__Lore!.7z.003](https://github.com/DuRev317/sandbox/raw/main/dl/Ranking_EVERY_Champion_Based_On__NEW__Lore%21.7z.003) `86.5MB`
+
+- 🗜️ [SHOWING_TFBLADE_THE_POWER_OF_MASTER_YI_MID.7z.001](https://github.com/DuRev317/sandbox/raw/main/dl/SHOWING_TFBLADE_THE_POWER_OF_MASTER_YI_MID.7z.001) `95.0MB`
+
+- 🗜️ [SHOWING_TFBLADE_THE_POWER_OF_MASTER_YI_MID.7z.002](https://github.com/DuRev317/sandbox/raw/main/dl/SHOWING_TFBLADE_THE_POWER_OF_MASTER_YI_MID.7z.002) `51.3MB`
+
+- 🗜️ [The_ENTIRE_History_of_ADC.7z.001](https://github.com/DuRev317/sandbox/raw/main/dl/The_ENTIRE_History_of_ADC.7z.001) `95.0MB`
+
+- 🗜️ [The_ENTIRE_History_of_ADC.7z.002](https://github.com/DuRev317/sandbox/raw/main/dl/The_ENTIRE_History_of_ADC.7z.002) `49.0MB`
+
+- 🗜️ [The_ENTIRE_History_of_Jungle.7z.001](https://github.com/DuRev317/sandbox/raw/main/dl/The_ENTIRE_History_of_Jungle.7z.001) `95.0MB`
+
+- 🗜️ [The_ENTIRE_History_of_Jungle.7z.002](https://github.com/DuRev317/sandbox/raw/main/dl/The_ENTIRE_History_of_Jungle.7z.002) `95.0MB`
+
+- 🗜️ [The_ENTIRE_History_of_Jungle.7z.003](https://github.com/DuRev317/sandbox/raw/main/dl/The_ENTIRE_History_of_Jungle.7z.003) `95.0MB`
+
+- 🗜️ [The_ENTIRE_History_of_Jungle.7z.004](https://github.com/DuRev317/sandbox/raw/main/dl/The_ENTIRE_History_of_Jungle.7z.004) `76.9MB`
+
+---
+
+
 ### 📅 2026-05-14 01:31 IR
 - 🗜️ [100%_Completing_The_Henry_Stickmin_Collection....7z.001](https://github.com/DuRev317/sandbox/raw/main/dl/100%25_Completing_The_Henry_Stickmin_Collection....7z.001) `95.0MB`
 
